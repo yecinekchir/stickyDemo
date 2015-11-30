@@ -1,4 +1,4 @@
 # Sticky Demo
 ======
 
-yecine.kchir@list.lu .
+yecine.kchir@gmail.com .
